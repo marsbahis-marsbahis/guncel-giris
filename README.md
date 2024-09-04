@@ -1,2 +1,1 @@
-# guncel-giris
-MARSBAHİS GÜNCEL GİRİŞİ MARSBAHİS GİRİŞ
+Marsbahis yeni güncel giriş adresinde. Popüler oyun ve bahis sitelerinden biri olan Marsbahis mevcut olan adresini değiştirmesinden dolayı kayıtlı üyeler yalnızca siteye güncellenen adresinden ulaşabilirler. Erişim sorunu yaşamadan güncel adresinden girmenizi tavsiye ederiz, aksi takdirde hesabınıza giriş yaparken bağlantı sorunu yaşayabilirsiniz. Marsbahis bilinen ve lisanslı olarak hizmet gösteren bir bahis sitesidir.
